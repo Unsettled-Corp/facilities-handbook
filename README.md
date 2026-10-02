@@ -4,7 +4,7 @@
 
 ## The building
 
-Unsettled Corp has occupied the building since 1883. The east wing was added later; the basement predates both, and nobody is sure by how much.
+Unsettled Corp has occupied the building since [REDACTED BY IT SECURITY]. The east wing was added later; the basement predates both, and nobody is sure by how much.
 
 ## Contents
 
